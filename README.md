@@ -1,4 +1,4 @@
--  naya or kozu
+-  yue or naya
 -  they / it
 -  black nonbinary lesbian
 -  love my girlfie & my friends 
