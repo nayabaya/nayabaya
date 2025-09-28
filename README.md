@@ -1,7 +1,7 @@
 -  naya or kozu
--  they / it / shx +
+-  they / it
 -  black nonbinary lesbian
--  love my wifey & my friends ... <33
+-  love my girlfie & my friends 
 -  applestrawberrysalad on discord if u wanna reach me <3
 
 <!---
