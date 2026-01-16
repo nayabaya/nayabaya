@@ -2,7 +2,7 @@
 -  they / it
 -  black nonbinary lesbian
 -  love my girlfie & my friends 
--  applestrawberrysalad on discord if u wanna reach me <3
+-  applestrawberryclair on discord if u wanna reach me <3
 
 <!---
 nayabaya/nayabaya is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
